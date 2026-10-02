@@ -219,4 +219,4 @@ VidShot Capturer is available as a **full free version** with all features and u
 Unlock your screen capturing potential—download VidShot Capturer today and start creating amazing videos!
 
 ---
-**Last updated:** 2026-10-02 18:49:26 UTC
+**Last updated:** 2026-10-02 22:42:09 UTC
